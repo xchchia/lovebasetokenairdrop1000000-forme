@@ -9,6 +9,7 @@ ustc
 strk scam
 CHOG
 ANI GORK
+BTC
 ETH
 REX33
 HIPPO
