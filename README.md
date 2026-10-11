@@ -6,6 +6,7 @@ love you base
 ixax
 daite daiete
 kdold21l2d122
+95l5l6ykop
 dengi dengi
 kakakk
 ddaaaaaaaaaox
