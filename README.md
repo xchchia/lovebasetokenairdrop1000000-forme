@@ -11,6 +11,7 @@ strk scam
 CHOG
 ANI GORK
 BUTT
+SUPRA
 BTC
 ETH
 SUI
