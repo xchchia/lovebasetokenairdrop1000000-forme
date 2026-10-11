@@ -27,3 +27,5 @@ shalava
 huava
 
 bulava
+
+gulava
