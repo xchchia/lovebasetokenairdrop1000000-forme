@@ -1,6 +1,7 @@
 # lovebasetokenairdrop1000000-forme
 xch
 aevo
+FOXY
 gork76ed
 ONE
 axol
