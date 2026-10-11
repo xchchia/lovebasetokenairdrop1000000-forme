@@ -38,7 +38,10 @@ WOOOF
 KEKIUS
 uxaxa
 HNT
-X100000000000 all user
+X1000000
+WOOOOOW 
+
+00000 all user
 chinax
 love you base
 NOTCOIN
