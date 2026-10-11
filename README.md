@@ -6,6 +6,7 @@ axol
 ustc
 strk scam
 CHOG
+HIPPO
 MOEW
 TKO
 LOFI
