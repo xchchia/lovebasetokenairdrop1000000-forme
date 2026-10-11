@@ -6,6 +6,7 @@ ixax
 kakakk
 dannnnaaaa
 dasaadasd
+sukaraka krasher
 gudax
 klera
 dumog
@@ -20,17 +21,12 @@ ooooo
 no 67
 dananan akkao0ll 
 elon 
-
+su
 baron
-
 shalava
-
 huava
-
 bulava
-
 gulava
-
 ldllall
 epanarot
 lakl22222
