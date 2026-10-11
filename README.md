@@ -4,6 +4,7 @@ aevo
 gork76ed
 axol
 ustc
+strk scam
 uxaxa
 X100000000000 all user
 chinax
