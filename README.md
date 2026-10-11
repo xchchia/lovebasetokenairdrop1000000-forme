@@ -5,6 +5,7 @@ gork76ed
 axol
 ustc
 strk scam
+CHOG
 TKO
 LOFI
 KEKIUS
