@@ -85,6 +85,7 @@ RABOTAEM OT LONGA
 vakad
 siskia
 SU4KA
+DAVAI
 hudnra
 ooooo
 no 67
