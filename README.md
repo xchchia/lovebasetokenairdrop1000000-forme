@@ -11,6 +11,7 @@ uxaxa
 X100000000000 all user
 chinax
 love you base
+NOTCOIN
 ixax
 90llkfil1
 khi9543p41656u
