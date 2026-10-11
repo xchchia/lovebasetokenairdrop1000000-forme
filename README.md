@@ -9,6 +9,7 @@ ustc
 strk scam
 CHOG
 ANI GORK
+ETH
 REX33
 HIPPO
 MOEW
