@@ -5,6 +5,7 @@ FOXY
 gork76ed
 ONE
 axol
+TRUMP
 A8
 GREEN
 GIVE ME MONEY
