@@ -10,6 +10,7 @@ ustc
 strk scam
 CHOG
 ANI GORK
+BUTT
 BTC
 ETH
 SUI
