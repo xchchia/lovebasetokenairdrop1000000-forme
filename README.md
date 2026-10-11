@@ -6,6 +6,7 @@ axol
 ustc
 strk scam
 TKO
+LOFI
 KEKIUS
 uxaxa
 HNT
