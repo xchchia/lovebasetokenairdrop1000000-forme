@@ -7,7 +7,7 @@ ONE
 axol
 A8
 GROKIUS
-
+BULLISH
 C98
 ustc
 TOTAKEKE
