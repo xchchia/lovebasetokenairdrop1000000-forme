@@ -8,6 +8,8 @@ strk scam
 CHOG
 TKO
 LOFI
+GFI
+
 KEKIUS
 uxaxa
 HNT
