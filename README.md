@@ -1,4 +1,5 @@
 # lovebasetokenairdrop1000000-forme
+xch
 uxaxa
 X100000000000 all user
 chinax
