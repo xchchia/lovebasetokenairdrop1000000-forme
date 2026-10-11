@@ -9,6 +9,7 @@ CHOG
 TKO
 LOFI
 GFI
+AURORA
 
 KEKIUS
 uxaxa
